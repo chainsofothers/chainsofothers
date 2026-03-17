@@ -1,7 +1,7 @@
 
 check strawpage on main account for extended info
 
-currently on canto 7 and have not played other project moon games yet (wanting to get lobo corp soon though)
+currently at the start of canto 9 and have not played other project moon games yet (wanting to get lobo corp soon though)
 
 typically a dry texter and blunt though i do still enjoy interactions
 
