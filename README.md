@@ -5,6 +5,8 @@ currently at the start of canto 9 and have not played other project moon games y
 
 typically a dry texter and blunt though i do still enjoy interactions
 
+might be less active then normal due to personal stuff going on rn
+
 gender apathetic but he/him still slightly preferred 
 
 nearly an adult so dont try to friend me if you are younger then 15
