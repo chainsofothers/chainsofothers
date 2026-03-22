@@ -1,11 +1,9 @@
 
-check strawpage on main account for extended info
+check strawpage for extended info
 
-currently at the start of canto 9 and have not played other project moon games yet (wanting to get lobo corp soon though)
+currently at the start of canto 9 and just started lobotomy corp (dont know anything about ruina yet)
 
 typically a dry texter and blunt though i do still enjoy interactions
-
-might be less active then normal due to personal stuff going on rn
 
 gender apathetic but he/him still slightly preferred 
 
