@@ -1,7 +1,7 @@
 
 check strawpage for extended info
 
-currently at the start of canto 9 and just started lobotomy corp (dont know anything about ruina yet)
+currently at the start of canto 9 and also just started lobotomy corp (dont know anything about ruina yet)
 
 typically a dry texter and blunt though i do still enjoy interactions
 
