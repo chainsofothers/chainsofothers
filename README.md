@@ -1,7 +1,7 @@
 
 check strawpage for extended info
 
-currently at the start of twinning threads and day 17 of lobotomy corp (dont know anything about ruina yet)
+currently fully caught up on limbus and on day 17 of lobotomy corp (dont know anything about ruina yet)
 
 my favs are meursault , faust , and xichun but i like all the sinners and sephirot
 
