@@ -3,7 +3,7 @@ check strawpage for extended info
 
 currently fully caught up on limbus and on day 17 of lobotomy corp (dont know anything about ruina yet)
 
-my favs are meursault , faust , and xichun but i like all the sinners and sephirot
+my favs are meursault , faust , xichun , and a lot of the villains (this doesnt mean i blindly defend or "glaze" them)
 
 typically a dry texter and blunt though i do still enjoy interactions
 
