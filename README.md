@@ -1,5 +1,5 @@
 
-check strawpage for extended info
+check rentry for extended info
 
 currently fully caught up on limbus and on day 30 of lobotomy corp (dont know anything about ruina yet)
 
