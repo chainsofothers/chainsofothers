@@ -1,9 +1,9 @@
 
 check rentry for extended info
 
-currently fully caught up on limbus and on day 30 of lobotomy corp (dont know anything about ruina yet)
+currently fully caught up on limbus , on day 31 of lobotomy corp , and just recently got ruina :)
 
-my favs are meursault , faust , xichun , and a lot of the villains (this doesnt mean i blindly defend or "glaze" them)
+my favs are meursault , faust , xichun , netzach , hod , and a lot of the villains (this doesnt mean i blindly defend or "glaze" them)
 
 typically a dry texter and blunt though i do still enjoy interactions
 
