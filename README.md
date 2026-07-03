@@ -11,6 +11,6 @@ nearly an adult so dont try to friend me if you are younger then 15 (you can sti
 
 other meursault fans/kins iwc im crazy and overprotective of him
 
-i follow people ive met or think are cool on this account instead of just my close friends
+i follow anyone ive met or think are cool on this account instead of just my close friends
 
 ![](https://i.imgur.com/dyEpikX.png)
