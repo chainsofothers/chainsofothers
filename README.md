@@ -3,7 +3,7 @@ check rentry for extended info
 
 currently fully caught up on limbus , on day 31 of lobotomy corp , and just recently got ruina :)
 
-my favs are meursault , faust , xichun , netzach , hod , and a lot of the villains (this doesnt mean i blindly defend or "glaze" them)
+my favs are meursault , faust , xichun , netzach , hod , and the nursefathers (i dont defend them they are just interesting to me)
 
 typically a dry texter and blunt though i do still enjoy interactions
 
